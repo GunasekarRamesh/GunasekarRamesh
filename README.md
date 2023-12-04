@@ -1,0 +1,7 @@
+- Hi, I’m @Gunasekar Ramesh
+- I’m interested in learning new technology
+- I’m currently learning DBMS
+- I’m looking to collaborate on new learnings
+- I am more passionated on my carrer
+- I am looking for internships
+- You can reach me through gunasekarharishrk@gmail.com
